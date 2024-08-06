@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @PEDRO-PAULO-DOS-SANTOS-MARTINS
+- 👀 I’m interested in evolve my programming skills and get a job
+- 🌱 I’m currently doing university on the Information Systems Course
+- 📫 Can reach me in email: "PedroPaulo281224@hotmail.com" or my cellphone: "+5533998781020"
+- 😄 Pronouns: HE/HIM
+- ⚡ Fun fact: I'm very joyful and sociable.
